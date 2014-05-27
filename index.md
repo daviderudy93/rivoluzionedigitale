@@ -37,330 +37,6 @@ License: CC BY-SA 3.0 Unported
 
 
 
-## 2013-06-12
-
-### @annamasera
-
-- Come la Rivoluzione Digitale ha influito sul giornalismo: @annamasera , 
-Social Media Editor de @la_stampa, prima SME di un giornale nazionale 
-http://t.co/pDbZ4IFGHl
-
-- @bassosimone: questa lezione in cui io vedo solo il live tweeting e' la 
-prova definitiva delle voste skills
-
-- “Giornalista dal 1984, da prima dei Computer, ho vissuto la sulla mia 
-pelle la rivoluzione digitale (dalle macchine da scrivere ai tablet). 
-Studiavo alla Columbia University” @annamasera
-
-- Gran parte di giornalisti si è adeguata alla rivoluzione digitale, altri sono 
-digitalmente analfabeti e si sentono tagliati fuori.
-
-- Anche in ambito giornalistico chi non rimane al passo coi tempi è 
-tagliato fuori
-
-- Dagli anni 80 il mondo del giornalismo è molto cambiato con la 
-digitalizzazione
-
-- L’analfabetismo digitale è una grande piaga italiana
-
-- Prima dell'avvento di Internet, i giornali sono sempre stati un luogo 
-dove si davano le notizie un po' dall'alto al basso. Il giornale era la fonte 
-di tutte le notizie
-
-
-- Adesso i giornali sono in crisi perchè la gente viene a conoscenza delle 
-notizie ancor prima che escano sui giornali, siamo sommersi di 
-informazioni
-
-- Inoltre non c'è tempo per leggere il giornale
-
-- "twitter è una agenzia stampa continua e gratuita per tutti" 
-@annamasera
-
-- Il giornale sta cambiando proprio perché deve cercare di dare un valore 
-aggiunto alle notizie che già sanno tutti
-
-- I giornali stanno cambiando per adeguarsi alle nuove necessità sociali: 
-non ha senso leggere notizie ormai obsolete e i giornalisti devono 
-inventarsi qualcosa per invogliare la gente a comprare il giornale 
-(interviste, speciali).
-
-- Il valore aggiunto dei giornali potrebbe essere la qualità
-
-- Se fate oggi giornalismo, non pensate che i giornali possano assumere. 
-Oggi molti adottano il pre-pensionamento. @annamasera
-
-- Foto di @annamasera http://t.co/UmRywPZkqv via @demartin
-
-- La rivoluzione digitale permette di scrivere cose dall'estero senza essere 
-"corrispondenti", “di abbassare i costi, facendo giornalismo da casa" 
-@annamasera
-
-- Il lavoro del corrispondente sta scomparendo perché troppo costoso.
-
-- Ci sono molte meno corrispondenze all'estero, molte sedi fuori dallo 
-stato originale del giornale sono state chiuse
-
-- I giornali sono in crisi: le vendite sono ridotte. Internet ha preso il 
-sopravvento, fornisce le notizie in tempo reale.
-
-- "Ho iniziato a occuparmi di Internet già nel 1994 a @panorama_it" 
-@annamasera
-
-- Come si componeva “La stampa” prima dell'avvento di Internet? Il video 
-by @annamasera http://t.co/tRPsHjiXXp 
-
-- Le telescriventi permettevano di stampare testi tramite impulsi elettrici 
-a distanza.
-
-- Computer portatile M10?!? Fenomenale direi!
-
-- Con gli sviluppi successivi ci sono migliori soluzioni grafiche: ad un certo 
-punto si inizia anche a formattare il testo.
-
-- Secondo video riguardante La Stampa oggi. Come si è evoluta La 
-Stampa dal 1968 al 2013: dalle telescriventi alle nuove risorse digitali.
-
-- SPAZIO La Stampa - An Unexpected Journey http://t.co/zF7rLSoK4A
-
-- La rivoluzione digitale rende vintage tutto ciò che ha a che fare con 
-l'elettronica in una decina di anni appena.
-
-- “I giornali ormai devono essere innanzitutto sugli schermi”
-
-- I giornali si adattano alla rivoluzione digitale anche modificando le 
-proprie sedi: La stampa non utilizza più piccoli sotto-uffici, ma un grande 
-open-space: in questo modo c'è più comunicazione, tutti si vedono e 
-comunicano costantemente, sono costantemente in riunione.
-
-- La Stampa ora è in una sede in affitto e più piccola per ridurre i costi. 
-Testimonia la crisi dei giornali.
-
-- Anche quelli del Corriere della Sera si stanno ispirando a La Stampa per 
-il loro nuovo edificio
-
-- Nell'era del digitale l'integrazione è la carta vincente!
-
-- Redazione Nazionale de @la_stampa - Open Space 360* 
-http://t.co/BVpajBgApH http://t.co/ceX6auXuV8
-
-
-- C’è ancora un incontro per scegliere cosa mettere in prima pagina, ma i 
-giornalisti partecipano adesso a una riunione continua “Always on” per il 
-Web: con il digitale il giornale deve aggiornarsi continuamente per 
-fornire news corrette tramite web
-
-- Ormai si produce prima il giornale "digitale" e poi quello cartaceo
-
-- Il giornale cartaceo richiede però approfondimenti ulteriori ed 
-innovazioni.
-
-- Foto della lezione http://t.co/d3LnquFwFv
-
-- Chi scrive per il giornale cartaceo, scrive anche per la versione digitale
-
-- @annamasera parla di @martaottaviani, del blog su @la_stampa e 
-della sua cronaca in tempo reale dalla turchia geziparki
-
-- Il live-blogging con audio, video e foto è molto più fruibile rispetto 
-all'articolo di blog standard.
-
-- "Non si sa se funzionerà il nuovo modo di fare giornalismo" è la frase 
-centrale. La rivoluzione digitale è in evoluzione
-
-- La Stampa tv serve per attirare utenti interessati a video e video-
-interviste. Ormai i lettori della carta sono in prevalenza gli anziani. L'età 
-media di chi guarda il TG1 è 60 anni.
-
-- Un canale Youtube o un buon sito Web può attirare numerosi utenti 
-che normalmente non comprerebbero un giornale.
-
-- I video e le immagini sono molto intuitivi ed apprezzati rispetto al 
-materiale cartaceo
-
-- Il giornale sta cercando di essere là dove c'è più richiesta da parte degli 
-utenti, e quindi diverse piattaforme Web
-
-- Gli inviati esteri postano intanto il live-tweeting, su un blog che viene 
-aggiornato in tempo reale, e, alla fine, gli articoli su carta.
-
-
-- Bisogna pensare a quel pubblico che è nativo digitale oggi e quindi 
-anziano del futuro E' necessario un cambio di business model
-
-- I giornali devono trovare un modello di business che possa, però, 
-sostenere anche la stampa su carta.
-
-- @la_stampa ha perso 1 milione di copie cartacee vendute in 5 anni 
-Read more on: http://t.co/48oN8bxHJQ
-
-- "Dobbiamo dimostrare che vale la pena leggerci, dobbiamo acquisire la 
-fiducia del lettore."
-
-- "La carta non riesce a rinnovarsi e piace sempre meno al suo pubblico"
-
-- Il 2012 si è avuto un tracollo del -35% dei ricavi pubblicitari dal cartaceo: 
-la pubblicità, che costituisce il finanziamento del giornale, su internet 
-costa molto meno, un investimento di 16 dollari sul cartaceo è diventato 
-un investimento di 1 dollaro su internet.
-
-- Solo su internet va meglio. Non sicuro il passaggio da carta a internet.
-
-- Oltre al giornale cartaceo, bisogna gestire Youtube, Facebook, Twitter,... 
-Ma servono dipendenti e non ci sono soldi per pagar loro gli stipendi. Ciò 
-va a discapito della qualità?
-
-Qualche anno fa in treno si leggeva il giornale, oggi tutti hanno tablet e 
-smart-phones. Foto di @annamasera
-
-- Si parla di Joseph Pulitzer e del buon giornalismo http://t.co/8bBrpf4zyk
-
-- Joseph Pulitzer ha identificato modelli ancora attuali per il buon 
-giornalismo.
-
-- C'è bisogno di buon giornalismo, per difendersi dalle informazioni non 
-di qualità. 
-
-- Non è più una questione di quantità ma di qualità delle notizie
-
-- Esprimi il tuo pensiero in modo conciso perché sia letto, in modo chiaro 
-perché sia capito, in modo pittoresco perché sia ricordato e, soprattutto, 
-in modo esatto perché i lettori siano guidati dalla sua luce.
-
-- Nell'era dell'informazione, quale è la nostra, c'è bisogno di giornalismo. 
-Il fatto che i giornali siano in crisi non  significa che il giornalismo lo sia. 
-Tutt'altro!
-
-- Joseph Pulitzer: una stampa cinica e mercenaria creerà un pubblico 
-ignobile
-
-- Hrant Dink, giornalista e scrittore turco: “Il giornalista è un po' come un 
-messaggero, non deve essere attaccato”. http://t.co/4KtaYTcllx 
- 
-- Ryszard Kapuscinski: Il giornalismo richiede due qualità: la prima è lo 
-spirito di sacrificio, la seconda è la serietà assoluta 
-http://t.co/Gs4DxmrF7q 
-
-- Se consenti anche ad una sola persona di scoprire che menti, che sei 
-stato banale o impreciso, allora avrai perduto.
-
-- Il giornalista deve essere umile e non arrogante: c'è sempre qualcuno 
-che la sa più lunga di te. Deve essere un mediatore in grado di divulgare 
-ciò che le persone pensano e che offre fonti difficili da raggiungere
-
-- Oggi con internet tutti possiamo raggiungere le fonti e se siamo bravi 
-possiamo essere in concorrenza con i giornalisti.
-
-- Le regole analoghe di fondo: 1 cercare la verità; 2 L'unico patto è col 
-lettore, mai con il potere; 3 Separare i fatti dalle opinioni, 4 Citare, ma 
-tutelare, le fonti; 5 Distinguere tra personaggi pubblici e cittadini privati; 
-6 Rispondere alle 5w (who when where what why) 
-http://t.co/nuxJQMAw2d 
- 
-- Un lettore scansiona in circa 7 secondi un articolo focalizzando il testo a 
-F, concentrandosi inizialmente sulla parte in alto a sinistra
-
--  statistiche degli accessi alla stampa on-line.. http://t.co/ZpJuheIuf3
-
-- Picco di letture alle 9 am considerando la giornata, e il lunedì 
-considerando la settimana.
-
-- I giornalisti sono i primi a dover mostrare e difondere integrità ed a non 
-dover commettere logical fallacies. 
-
-- Generalmente si arriva sui siti dei giornali solo da link esterni, ad 
-esempio da Facebook o GoogleNews. Pochi accedono alle notizie dalla 
-home page dei siti dei giornali
-
-- Secondo gli studi Pew/Nielsen il 30% dei visitatori di siti di giornali arriva 
-da aggregatori come GoogleNews.
-
-- capire se una notizia ci può interessare o meno è molto più facile su 
-internet che su un giornale
-
-- Col web i lettori sono diventati audience
-
-- I giornalisti sono legati a Twitter ma l'audience è su Facebook (900 
-milioni di utenti attivi, più di 70 lingue)
-
-- Le tv sono in competizione con Youtube: la Francia 60 milioni di euro da 
-un’intesa con Google per i diritti sui filmati; la prima al mondo.. "Da noi 
-non c'è premier che si preoccupa degli editori."
-
-- Su internet si può accedere alle versioni originali (spesso in inglese) di 
-articoli interessanti. I giornali devono più tradurre
-
-- Nei prossimi anni, a causa della crisi e della , molti giornali 
-scompariranno o si alleeranno fra di loro. Ci saranno molti più blog 
-gestiti, magari, dalle grandi firme che si metteranno in proprio.
-
-- Far pagare i contenuti digitali su internet è molto difficile.
-
-- Internet migliora o peggiora il giornalismo? Secondo Nicholas Carr 
-Internet peggiora il giornalismo. Per Jay Rosen invece lo migliora. Il 
-pubblico è d’accordo con Rosen.
-
-- Internet danneggia il modello di business ma migliora il giornalismo 
-perchè abbassa i costi, apre il mercato e aumenta le fonti
-
-- Giornalismo 2.0: con interventi dal pubblico
-
-- Nei giornali nascono nuovi ruoli: Social media editor, social media 
-reporter, specialista slideshow, crowdsourcer, etc...
-
-- I giornali adesso investono molto sugli e-book
-
-- Le bufale dei giornali sono dovute spesso alle lacune in campo 
-informatico dei giornalisti.
-
-- E' necessaria la presenza di ingegneri informatici e di hacker: persone 
-esperte di Internet e computer. I giornalisti dovrebbero fare un corso di 
-informatica e di crap detection
-
-- Social Media Explained http://t.co/Rx8jpjR55B
-
-- Su Twitter @la_stampa ha 70k followers. Su Facebook 40k utenti attivi. 
-Su Youtube 1800k visualizzazioni
-
-- I giornalisti che hanno un blog deve essere in linea con quanto scelto 
-nel giornale!
-
-- Decalogo di @annamasera per l’uso dei social media. Una regola ci 
-riguarda: il valore di un blog è la sua continuità 
-
-- 10 minuti finali, Question time
-
-- sono molto meno gli abbonati su internet che coloro che acquistano i 
-giornali cartacei
-
-- Ricordiamoci comunque che il diritto alla conoscenza è un bene non 
-rivale e non escludibile...
-
-- Si parla di Crap detection, valutare quali informazioni arrivino da fonti 
-attendibili: un buon giornalista prima di divulgare una informazione non 
-confermata, deve accertarsi che la notizia sia vera. 
-
-- E' fondamentale la trasparenza nell'uso delle fonti! Può essere utile fare 
-una verifica incrociata: chi ha già citato la fonte?
-
-- Nell'era di Twitter si ha fretta di essere i primi a dare la notizia, ma è 
-meglio essere sicuri di ciò che si dice e arrivare 1 minuto dopo.
-
-- I giornali vanno matti per le notizie bomba, ma attenzione alle bufale!
-
-- La Rivoluzione digitale aiuta moltissimo il modo di fare giornalismo: 
-precisione, velocità, completezza. Si può comunicare velocemente in 
-tutto il globo
-
-- Nel mondo dei giornalisti anche le bufale fanno notizia.
-
-- Grazie ad @annamasera per l'interessantissima lezione 
-
-- Un’idea per il futuro: collaborazione dei giornali stile Itunes: chiunque
-si confezioni un giornale prendendo pagine da giornali diversi 
-
-
-
 ## 2013-06-07
 
 ## @demartin
@@ -4803,6 +4479,328 @@ autori di rinunciare ad alcuni diritti; per esempio il diritto a
 copiare e modificare l'opera
 Su wikipedia vi sono maggiori informazioni:
 http://it.wikipedia.org/wiki/Licenze_Creative_Commons
+
+## 2013-06-12
+
+### @annamasera
+
+- Come la Rivoluzione Digitale ha influito sul giornalismo: @annamasera , 
+Social Media Editor de @la_stampa, prima SME di un giornale nazionale 
+http://t.co/pDbZ4IFGHl
+
+- @bassosimone: questa lezione in cui io vedo solo il live tweeting e' la 
+prova definitiva delle voste skills
+
+- “Giornalista dal 1984, da prima dei Computer, ho vissuto la sulla mia 
+pelle la rivoluzione digitale (dalle macchine da scrivere ai tablet). 
+Studiavo alla Columbia University” @annamasera
+
+- Gran parte di giornalisti si è adeguata alla rivoluzione digitale, altri sono 
+digitalmente analfabeti e si sentono tagliati fuori.
+
+- Anche in ambito giornalistico chi non rimane al passo coi tempi è 
+tagliato fuori
+
+- Dagli anni 80 il mondo del giornalismo è molto cambiato con la 
+digitalizzazione
+
+- L’analfabetismo digitale è una grande piaga italiana
+
+- Prima dell'avvento di Internet, i giornali sono sempre stati un luogo 
+dove si davano le notizie un po' dall'alto al basso. Il giornale era la fonte 
+di tutte le notizie
+
+
+- Adesso i giornali sono in crisi perchè la gente viene a conoscenza delle 
+notizie ancor prima che escano sui giornali, siamo sommersi di 
+informazioni
+
+- Inoltre non c'è tempo per leggere il giornale
+
+- "twitter è una agenzia stampa continua e gratuita per tutti" 
+@annamasera
+
+- Il giornale sta cambiando proprio perché deve cercare di dare un valore 
+aggiunto alle notizie che già sanno tutti
+
+- I giornali stanno cambiando per adeguarsi alle nuove necessità sociali: 
+non ha senso leggere notizie ormai obsolete e i giornalisti devono 
+inventarsi qualcosa per invogliare la gente a comprare il giornale 
+(interviste, speciali).
+
+- Il valore aggiunto dei giornali potrebbe essere la qualità
+
+- Se fate oggi giornalismo, non pensate che i giornali possano assumere. 
+Oggi molti adottano il pre-pensionamento. @annamasera
+
+- Foto di @annamasera http://t.co/UmRywPZkqv via @demartin
+
+- La rivoluzione digitale permette di scrivere cose dall'estero senza essere 
+"corrispondenti", “di abbassare i costi, facendo giornalismo da casa" 
+@annamasera
+
+- Il lavoro del corrispondente sta scomparendo perché troppo costoso.
+
+- Ci sono molte meno corrispondenze all'estero, molte sedi fuori dallo 
+stato originale del giornale sono state chiuse
+
+- I giornali sono in crisi: le vendite sono ridotte. Internet ha preso il 
+sopravvento, fornisce le notizie in tempo reale.
+
+- "Ho iniziato a occuparmi di Internet già nel 1994 a @panorama_it" 
+@annamasera
+
+- Come si componeva “La stampa” prima dell'avvento di Internet? Il video 
+by @annamasera http://t.co/tRPsHjiXXp 
+
+- Le telescriventi permettevano di stampare testi tramite impulsi elettrici 
+a distanza.
+
+- Computer portatile M10?!? Fenomenale direi!
+
+- Con gli sviluppi successivi ci sono migliori soluzioni grafiche: ad un certo 
+punto si inizia anche a formattare il testo.
+
+- Secondo video riguardante La Stampa oggi. Come si è evoluta La 
+Stampa dal 1968 al 2013: dalle telescriventi alle nuove risorse digitali.
+
+- SPAZIO La Stampa - An Unexpected Journey http://t.co/zF7rLSoK4A
+
+- La rivoluzione digitale rende vintage tutto ciò che ha a che fare con 
+l'elettronica in una decina di anni appena.
+
+- “I giornali ormai devono essere innanzitutto sugli schermi”
+
+- I giornali si adattano alla rivoluzione digitale anche modificando le 
+proprie sedi: La stampa non utilizza più piccoli sotto-uffici, ma un grande 
+open-space: in questo modo c'è più comunicazione, tutti si vedono e 
+comunicano costantemente, sono costantemente in riunione.
+
+- La Stampa ora è in una sede in affitto e più piccola per ridurre i costi. 
+Testimonia la crisi dei giornali.
+
+- Anche quelli del Corriere della Sera si stanno ispirando a La Stampa per 
+il loro nuovo edificio
+
+- Nell'era del digitale l'integrazione è la carta vincente!
+
+- Redazione Nazionale de @la_stampa - Open Space 360* 
+http://t.co/BVpajBgApH http://t.co/ceX6auXuV8
+
+
+- C’è ancora un incontro per scegliere cosa mettere in prima pagina, ma i 
+giornalisti partecipano adesso a una riunione continua “Always on” per il 
+Web: con il digitale il giornale deve aggiornarsi continuamente per 
+fornire news corrette tramite web
+
+- Ormai si produce prima il giornale "digitale" e poi quello cartaceo
+
+- Il giornale cartaceo richiede però approfondimenti ulteriori ed 
+innovazioni.
+
+- Foto della lezione http://t.co/d3LnquFwFv
+
+- Chi scrive per il giornale cartaceo, scrive anche per la versione digitale
+
+- @annamasera parla di @martaottaviani, del blog su @la_stampa e 
+della sua cronaca in tempo reale dalla turchia geziparki
+
+- Il live-blogging con audio, video e foto è molto più fruibile rispetto 
+all'articolo di blog standard.
+
+- "Non si sa se funzionerà il nuovo modo di fare giornalismo" è la frase 
+centrale. La rivoluzione digitale è in evoluzione
+
+- La Stampa tv serve per attirare utenti interessati a video e video-
+interviste. Ormai i lettori della carta sono in prevalenza gli anziani. L'età 
+media di chi guarda il TG1 è 60 anni.
+
+- Un canale Youtube o un buon sito Web può attirare numerosi utenti 
+che normalmente non comprerebbero un giornale.
+
+- I video e le immagini sono molto intuitivi ed apprezzati rispetto al 
+materiale cartaceo
+
+- Il giornale sta cercando di essere là dove c'è più richiesta da parte degli 
+utenti, e quindi diverse piattaforme Web
+
+- Gli inviati esteri postano intanto il live-tweeting, su un blog che viene 
+aggiornato in tempo reale, e, alla fine, gli articoli su carta.
+
+
+- Bisogna pensare a quel pubblico che è nativo digitale oggi e quindi 
+anziano del futuro E' necessario un cambio di business model
+
+- I giornali devono trovare un modello di business che possa, però, 
+sostenere anche la stampa su carta.
+
+- @la_stampa ha perso 1 milione di copie cartacee vendute in 5 anni 
+Read more on: http://t.co/48oN8bxHJQ
+
+- "Dobbiamo dimostrare che vale la pena leggerci, dobbiamo acquisire la 
+fiducia del lettore."
+
+- "La carta non riesce a rinnovarsi e piace sempre meno al suo pubblico"
+
+- Il 2012 si è avuto un tracollo del -35% dei ricavi pubblicitari dal cartaceo: 
+la pubblicità, che costituisce il finanziamento del giornale, su internet 
+costa molto meno, un investimento di 16 dollari sul cartaceo è diventato 
+un investimento di 1 dollaro su internet.
+
+- Solo su internet va meglio. Non sicuro il passaggio da carta a internet.
+
+- Oltre al giornale cartaceo, bisogna gestire Youtube, Facebook, Twitter,... 
+Ma servono dipendenti e non ci sono soldi per pagar loro gli stipendi. Ciò 
+va a discapito della qualità?
+
+Qualche anno fa in treno si leggeva il giornale, oggi tutti hanno tablet e 
+smart-phones. Foto di @annamasera
+
+- Si parla di Joseph Pulitzer e del buon giornalismo http://t.co/8bBrpf4zyk
+
+- Joseph Pulitzer ha identificato modelli ancora attuali per il buon 
+giornalismo.
+
+- C'è bisogno di buon giornalismo, per difendersi dalle informazioni non 
+di qualità. 
+
+- Non è più una questione di quantità ma di qualità delle notizie
+
+- Esprimi il tuo pensiero in modo conciso perché sia letto, in modo chiaro 
+perché sia capito, in modo pittoresco perché sia ricordato e, soprattutto, 
+in modo esatto perché i lettori siano guidati dalla sua luce.
+
+- Nell'era dell'informazione, quale è la nostra, c'è bisogno di giornalismo. 
+Il fatto che i giornali siano in crisi non  significa che il giornalismo lo sia. 
+Tutt'altro!
+
+- Joseph Pulitzer: una stampa cinica e mercenaria creerà un pubblico 
+ignobile
+
+- Hrant Dink, giornalista e scrittore turco: “Il giornalista è un po' come un 
+messaggero, non deve essere attaccato”. http://t.co/4KtaYTcllx 
+ 
+- Ryszard Kapuscinski: Il giornalismo richiede due qualità: la prima è lo 
+spirito di sacrificio, la seconda è la serietà assoluta 
+http://t.co/Gs4DxmrF7q 
+
+- Se consenti anche ad una sola persona di scoprire che menti, che sei 
+stato banale o impreciso, allora avrai perduto.
+
+- Il giornalista deve essere umile e non arrogante: c'è sempre qualcuno 
+che la sa più lunga di te. Deve essere un mediatore in grado di divulgare 
+ciò che le persone pensano e che offre fonti difficili da raggiungere
+
+- Oggi con internet tutti possiamo raggiungere le fonti e se siamo bravi 
+possiamo essere in concorrenza con i giornalisti.
+
+- Le regole analoghe di fondo: 1 cercare la verità; 2 L'unico patto è col 
+lettore, mai con il potere; 3 Separare i fatti dalle opinioni, 4 Citare, ma 
+tutelare, le fonti; 5 Distinguere tra personaggi pubblici e cittadini privati; 
+6 Rispondere alle 5w (who when where what why) 
+http://t.co/nuxJQMAw2d 
+ 
+- Un lettore scansiona in circa 7 secondi un articolo focalizzando il testo a 
+F, concentrandosi inizialmente sulla parte in alto a sinistra
+
+-  statistiche degli accessi alla stampa on-line.. http://t.co/ZpJuheIuf3
+
+- Picco di letture alle 9 am considerando la giornata, e il lunedì 
+considerando la settimana.
+
+- I giornalisti sono i primi a dover mostrare e difondere integrità ed a non 
+dover commettere logical fallacies. 
+
+- Generalmente si arriva sui siti dei giornali solo da link esterni, ad 
+esempio da Facebook o GoogleNews. Pochi accedono alle notizie dalla 
+home page dei siti dei giornali
+
+- Secondo gli studi Pew/Nielsen il 30% dei visitatori di siti di giornali arriva 
+da aggregatori come GoogleNews.
+
+- capire se una notizia ci può interessare o meno è molto più facile su 
+internet che su un giornale
+
+- Col web i lettori sono diventati audience
+
+- I giornalisti sono legati a Twitter ma l'audience è su Facebook (900 
+milioni di utenti attivi, più di 70 lingue)
+
+- Le tv sono in competizione con Youtube: la Francia 60 milioni di euro da 
+un’intesa con Google per i diritti sui filmati; la prima al mondo.. "Da noi 
+non c'è premier che si preoccupa degli editori."
+
+- Su internet si può accedere alle versioni originali (spesso in inglese) di 
+articoli interessanti. I giornali devono più tradurre
+
+- Nei prossimi anni, a causa della crisi e della , molti giornali 
+scompariranno o si alleeranno fra di loro. Ci saranno molti più blog 
+gestiti, magari, dalle grandi firme che si metteranno in proprio.
+
+- Far pagare i contenuti digitali su internet è molto difficile.
+
+- Internet migliora o peggiora il giornalismo? Secondo Nicholas Carr 
+Internet peggiora il giornalismo. Per Jay Rosen invece lo migliora. Il 
+pubblico è d’accordo con Rosen.
+
+- Internet danneggia il modello di business ma migliora il giornalismo 
+perchè abbassa i costi, apre il mercato e aumenta le fonti
+
+- Giornalismo 2.0: con interventi dal pubblico
+
+- Nei giornali nascono nuovi ruoli: Social media editor, social media 
+reporter, specialista slideshow, crowdsourcer, etc...
+
+- I giornali adesso investono molto sugli e-book
+
+- Le bufale dei giornali sono dovute spesso alle lacune in campo 
+informatico dei giornalisti.
+
+- E' necessaria la presenza di ingegneri informatici e di hacker: persone 
+esperte di Internet e computer. I giornalisti dovrebbero fare un corso di 
+informatica e di crap detection
+
+- Social Media Explained http://t.co/Rx8jpjR55B
+
+- Su Twitter @la_stampa ha 70k followers. Su Facebook 40k utenti attivi. 
+Su Youtube 1800k visualizzazioni
+
+- I giornalisti che hanno un blog deve essere in linea con quanto scelto 
+nel giornale!
+
+- Decalogo di @annamasera per l’uso dei social media. Una regola ci 
+riguarda: il valore di un blog è la sua continuità 
+
+- 10 minuti finali, Question time
+
+- sono molto meno gli abbonati su internet che coloro che acquistano i 
+giornali cartacei
+
+- Ricordiamoci comunque che il diritto alla conoscenza è un bene non 
+rivale e non escludibile...
+
+- Si parla di Crap detection, valutare quali informazioni arrivino da fonti 
+attendibili: un buon giornalista prima di divulgare una informazione non 
+confermata, deve accertarsi che la notizia sia vera. 
+
+- E' fondamentale la trasparenza nell'uso delle fonti! Può essere utile fare 
+una verifica incrociata: chi ha già citato la fonte?
+
+- Nell'era di Twitter si ha fretta di essere i primi a dare la notizia, ma è 
+meglio essere sicuri di ciò che si dice e arrivare 1 minuto dopo.
+
+- I giornali vanno matti per le notizie bomba, ma attenzione alle bufale!
+
+- La Rivoluzione digitale aiuta moltissimo il modo di fare giornalismo: 
+precisione, velocità, completezza. Si può comunicare velocemente in 
+tutto il globo
+
+- Nel mondo dei giornalisti anche le bufale fanno notizia.
+
+- Grazie ad @annamasera per l'interessantissima lezione 
+
+- Un’idea per il futuro: collaborazione dei giornali stile Itunes: chiunque
+si confezioni un giornale prendendo pagine da giornali diversi 
 
 
 ## 2013-06-14
